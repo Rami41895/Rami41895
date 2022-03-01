@@ -3,7 +3,7 @@
   ![ZRJAQRB](https://user-images.githubusercontent.com/56738853/156171368-f02b058c-82fa-43ac-a9a2-d3e883126a95.gif)
 
 
-## I'm a Developer, and Teacher!!
+## I'm a MOBILE PHONE DEVELOPER
 
 - 🌱 I am currently learning advanced techniques�
 - 👯 I’m looking to collaborate with other content creators
